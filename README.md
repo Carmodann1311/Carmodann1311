@@ -1,4 +1,4 @@
-### Hi there 👋
+### alumno de la universidad rosario castellanos en la licenciatura en ciencia de datos de 4 semestre y jugador de futbol (PORTERO) en TDP 👋
 
 <!--
 **Carmodann1311/Carmodann1311** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
